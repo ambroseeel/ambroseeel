@@ -12,7 +12,7 @@
   <pre>
 
     
-             「 ✦ **COMPUTER CAT** ✦ 」
+             「 ✦ COMPUTER CAT ✦ 」
     
                             ╱|、
                           (˚ˎ 。7  
