@@ -10,6 +10,12 @@
 - *bonus: I love collecting official Sanrio merch*
 
   <pre>
+
+
+
+
+
+    
   opa                       ╱|、
                           (˚ˎ 。7  
                            |、˜〵          
