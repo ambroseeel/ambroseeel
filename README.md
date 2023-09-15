@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hi there, I'm Jasmine ૮ ˶ᵔ ᵕ ᵔ˶ ა 👋
+---
+![pink catto cute](https://64.media.tumblr.com/0a2fc9a929b6c692b1256945dee07054/bba1e67cf4f9b0f4-de/s500x750/b844d44476bff731af6b378293b6ede40debe4dd.gif)
 
-<!--
-**ambroseeel/ambroseeel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔭 I’m currently working on my programming skills
+- 🌱 I’m currently learning database management and networking
+- 😄 Pronouns: she/her/they/them
+- ⚡ Fun fact: I love cats, video games and listening to indie artists! 
 
-Here are some ideas to get you started:
+- *bonus: I love collecting official Sanrio merch*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <pre>
+  opa                       ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ
+  </pre>
+  「 ✦ **COMPUTER CAT** ✦ 」
+
+
