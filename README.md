@@ -11,16 +11,16 @@
 
   <pre>
 
-
+  「 ✦ **COMPUTER CAT** ✦ 」
 
 
 
     
-  opa                       ╱|、
+                            ╱|、
                           (˚ˎ 。7  
                            |、˜〵          
                           じしˍ,)ノ
   </pre>
-  「 ✦ **COMPUTER CAT** ✦ 」
+
 
 
